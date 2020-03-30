@@ -1,0 +1,7 @@
+book_filename: "dreams_CarlitoFluito"
+chapter_name: ""
+repo: https://github.com/carlitofluito/dreams
+output_dir: docs
+rmd_files: ["index.Rmd", "01-dreams.Rmd", "02-morning", "references.Rmd"]
+clean: [packages.bib, bookdown.bbl]
+new_session: yes
