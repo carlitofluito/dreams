@@ -32,7 +32,7 @@ knitr::include_graphics("docs/images/2020/dreams.jpeg")
 
 ## Bonus
 
-As an extra, I have added my *Morning [affirmations]* and [*Routine*][routine], in case it serves as an inspiration for anyone.
+As an extra, I have added my [*Morning affirmations*][affirmations] and [*Routine*][routine], in case it serves as an inspiration for anyone.
 
 At the moment, I am very happy to interact with my readers. I will write in the future more specifically and clearly my practices. Nowadays, they may be a bit difficult to understand if it is the first time you read something from me. I suggest you take a look to [my guides](https://www.carlitofluitoideas.com/unfinished-books/) with [*Life advice*](https://carlitofluito.github.io/life_advice/), the one for [*Thriving with COVID-19*](https://carlitofluito.github.io/thrive_covid/), or the one for [*Ph.D. Students*](https://carlitofluito.github.io/phd_guide/)^[*Life advice* is very similar than the one referred above. I suggest reading the other one if you are not a Ph.D. student.]. Therefore, if you have any comments, or questions about what is written, feel free of [email me](mailto: carlitofluito@gmail.com) or contact me, though [my website form](https://www.carlitofluitoideas.com/contact/). 
 
