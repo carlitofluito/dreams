@@ -27,7 +27,7 @@ C. F.
 
 
 <div class="figure" style="text-align: center">
-<img src="docs/images/2020/dreams.jpg" alt="Good morning! :-)" width="75%" />
+<img src="docs/images/2020/dreams.jpeg" alt="Good morning! :-)" width="75%" />
 <p class="caption">(\#fig:narciso)Good morning! :-)</p>
 </div>
 
