@@ -1,4 +1,4 @@
-# Affirmations/Simple truths {#affirmations}
+# Affirmations/Simple truths {#affirmation}
 
 
 This is a copy of my affirmations that I am supposed to repeat every morning. I wrote [a post on my blog](https://www.carlitofluitoideas.com/affirmations-truths/) where I explain my process with affirmations. I was skeptic, so then, I decided to say “*Simple truths*” instead. 
