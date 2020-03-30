@@ -22,25 +22,25 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 ----
 
--	Drink water (lemon, hot, Himalaya) + Wudu *La Cabra*
+-	**Wake up**: Drink water (lemon, hot, Himalaya) + Wudu *La Cabra*
 
-*10min max.* & **Phone fasting**
+*10min max.* & *Phone fasting*
 
--	Dream/automatic writing + publish it.
+- **Empty mind**:	Dream/automatic writing + publish it.
 
 *15-45min*
 
--	Open yoga/mobility awakening + affirmations
+-	**Reconnect body**: Open yoga/mobility awakening + affirmations
 
 *45min-1h15*
 
--	Muslim Wudu + Meditation (6 phase/activation) + Breathing exercise (fire/Wim Hof/hypopressive)
+-	**Spiritual practice**: Muslim Wudu + Meditation (6 phase/activation) + Breathing exercise (fire/Wim Hof/hypopressive)
 
-*45-60min* & **Food Fasting + Phone fasting**
+*45-60min* & *Food Fasting + Phone fasting*
 
 - **Mind creativity**: Writing current project (Covid)/Performance envisioning notebook
 
-*1h45* (3 x 35min power nap) & **Phone fasting + Tea**
+*1h45* (3 x 35min power nap) & *Phone fasting + Tea*
 
 -	**Breakfast**: Frugivore exclusive (smoothie) + power nap (Optional. 20min max.)
 
@@ -48,7 +48,7 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 -	**Body creativity**: Original workout/Choreography/Movement training
 
-*45min-1h15* & **Phone fasting + Tea**
+*45min-1h15* & *Phone fasting + Tea*
 
 -	**Phone check**
 
@@ -56,7 +56,7 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 - **Publishing**: Working on previous texts
 
-*1.45*(3 x 35min power nap) + **Phone fasting + Tea**
+*1.45*(3 x 35min power nap) + *Phone fasting + Tea*
 
 
 
