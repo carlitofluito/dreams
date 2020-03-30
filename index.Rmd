@@ -24,3 +24,9 @@ Enjoy the journey and understand as much as you can.
 Intuitively, 
 
 C. F.
+
+
+```{r narciso, fig.cap= "Good morning! :-)", fig.margin = TRUE, out.width = "75%", fig.align='center', echo=FALSE}
+knitr::include_graphics("docs/images/2020/dreams.jpg")
+```
+

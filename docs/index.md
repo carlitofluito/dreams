@@ -24,3 +24,10 @@ Enjoy the journey and understand as much as you can.
 Intuitively, 
 
 C. F.
+
+
+<div class="figure" style="text-align: center">
+<img src="docs/images/2020/dreams.jpg" alt="Good morning! :-)" width="75%" />
+<p class="caption">(\#fig:narciso)Good morning! :-)</p>
+</div>
+
