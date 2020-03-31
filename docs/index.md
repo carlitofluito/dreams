@@ -1,7 +1,7 @@
 --- 
 title: "Dreams and morning reflections (Automatic writings)"
 author: "Carlos Alcala a.k.a. Carlito Fluito"
-date: "2020-03-30"
+date: "2020-03-31"
 site: bookdown::bookdown_site
 documentclass: book
 bibliography: [bibliography.bib]
@@ -31,7 +31,7 @@ C. F.
 <p class="caption">(\#fig:narciso)Good morning! :-)</p>
 </div>
 
-## Bonus
+## Bonus {-#bonus}
 
 As an extra, I have added my [*Morning affirmations*][affirmations] and [*Routine*][routine], in case it serves as an inspiration for anyone.
 

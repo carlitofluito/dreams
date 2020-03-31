@@ -30,7 +30,7 @@ C. F.
 knitr::include_graphics("docs/images/2020/dreams.jpeg")
 ```
 
-## Bonus
+## Bonus {-#bonus}
 
 As an extra, I have added my [*Morning affirmations*][affirmations] and [*Routine*][routine], in case it serves as an inspiration for anyone.
 

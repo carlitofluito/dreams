@@ -22,31 +22,31 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 ----
 
--	**Wake up**: Drink water (lemon, hot, Himalaya) + Wudu *La Cabra*
+-	**Wake up**: Drink water (lemon, hot, Himalaya salt) + [Wudu *La Cabra*](https://photos.app.goo.gl/Sm8xbKxgmmWxw3xW8)
 
 *10min max.* & *Phone fasting*
 
-- **Empty mind**:	Dream/automatic writing + publish it.
+- **Empty mind**:	[Dream/automatic writing](https://writingcooperative.com/the-case-against-morning-pages-84782e759cd2) + [publish it](https://bookdown.org/home/).
 
 *15-45min*
 
--	**Reconnect body**: Open yoga/mobility awakening + affirmations
+-	**Reconnect body**: Open yoga/mobility awakening + [affirmations] 
 
 *45min-1h15*
 
--	**Spiritual practice**: Muslim Wudu + Meditation (6 phase/activation) + Breathing exercise (fire/Wim Hof/hypopressive)
+-	**Spiritual practice**: [Muslim Wudu](https://www.youtube.com/watch?v=dbpGO6jsQ_c)^[I am not Muslim, but I think it is a good spiritual practice to feel more present, connected and grateful for being alive, and clean and fresh for the meditation.] + Meditation ( [6 phase](https://www.youtube.com/watch?v=EaRu14P9H84)/ [activation](https://www.soulvana.com/)) + Breathing exercise ( [fire breath](https://www.youtube.com/watch?v=1gpYEvALCZA)/[Wim Hof](https://youtu.be/nzCaZQqAs9I)/ [hypopressive](https://www.youtube.com/watch?v=bqHYrw9ce6c))
 
 *45-60min* & *Food Fasting + Phone fasting*
 
-- **Mind creativity**: Writing current project (Covid)/Performance envisioning notebook
+- **Mind creativity**: [Writing current project](https://www.carlitofluitoideas.com/unfinished-books/) (Covid)/ [Performance envisioning notebook](https://www.carlitofluito.com/dance/)
 
 *1h45* (3 x 35min power nap) & *Phone fasting + Tea*
 
--	**Breakfast**: Frugivore exclusive (smoothie) + power nap (Optional. 20min max.)
+-	**Breakfast**: [Frugivore](https://en.wikipedia.org/wiki/Fruitarianism) exclusive (smoothie) + [power nap](https://www.youtube.com/watch?v=rt0EU1SM3S0) (Optional. 20min max.)
 
 *20min + 20min max*
 
--	**Body creativity**: Original workout/Choreography/Movement training
+-	**Body creativity**: Original workout/Choreography/Movement training (Calisthenics, Animal flow, Acrobatics, Capoeira)
 
 *45min-1h15* & *Phone fasting + Tea*
 
