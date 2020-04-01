@@ -34,11 +34,11 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 *45min-1h15*
 
--	**Spiritual practice**: [Muslim Wudu](https://www.youtube.com/watch?v=dbpGO6jsQ_c)^[I am not Muslim, but I think it is a good spiritual practice to feel more present, connected and grateful for being alive, and clean and fresh for the meditation.] + Meditation ( [6 phase](https://www.youtube.com/watch?v=EaRu14P9H84)/ [activation](https://www.soulvana.com/)) + Breathing exercise ( [fire breath](https://www.youtube.com/watch?v=1gpYEvALCZA)/[Wim Hof](https://youtu.be/nzCaZQqAs9I)/ [hypopressive](https://www.youtube.com/watch?v=bqHYrw9ce6c))
+-	**Spiritual practice**: [Muslim Wudu](https://www.youtube.com/watch?v=dbpGO6jsQ_c)^[I am not Muslim, but I think it is a good spiritual practice to feel more present, connected and grateful for being alive, and clean and fresh for the meditation.] + Meditation ([6 phase](https://www.youtube.com/watch?v=EaRu14P9H84)/[activation](https://www.soulvana.com/)) + Breathing exercise ([fire breath](https://www.youtube.com/watch?v=1gpYEvALCZA)/[Wim Hof](https://youtu.be/nzCaZQqAs9I)/[hypopressive](https://www.youtube.com/watch?v=bqHYrw9ce6c))
 
 *45-60min* & *Food Fasting + Phone fasting*
 
-- **Mind creativity**: [Writing current project](https://www.carlitofluitoideas.com/unfinished-books/) (Covid)/ [Performance envisioning notebook](https://www.carlitofluito.com/dance/)
+- **Mind creativity**: [Writing current project](https://www.carlitofluitoideas.com/unfinished-books/) (Covid19: 3 Scenarios)/ [Performance envisioning notebook](https://www.carlitofluito.com/dance/)
 
 *1h45* (3 x 35min power nap) & *Phone fasting + Tea*
 
