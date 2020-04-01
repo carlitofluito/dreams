@@ -45,4 +45,4 @@ Keep on dreaming and enjoy your quarantine time.
 
 7.44 - Revision and correction – 8.53
 
-2 hours of work already :-)
+2 hours of work already :-) Now, I can continue with the routine, and do some yoga to fix the contraction of my neck. 
