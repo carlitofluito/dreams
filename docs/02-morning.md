@@ -48,21 +48,21 @@ Revision and correction.
  
  
  
-### Observe with perspectives. Worries disappear when you zoom out. (2020-04-08)
+### Observe with perspective. Worries disappear when you zoom out. (2020-04-08)
 
-Tegel Airport, Berlin, Germany – COVID times..^[If you like to see my face and hear me talking, click [here]().]
+Tegel Airport, Berlin, Germany – COVID times.^[If you like to see my face and hear me talking, click [here](https://photos.google.com/u/1/photo/AF1QipPbV_wHExFJ8xGO_19g338LBqHV0GT3Vm5OQylm).]
 
 Many people may call me irresponsible, but I think that the most punishable act right now is to be so close of taking a plane considering the environmental situation of the planet. 
 
 Psilocybin heals. It heals so much that it could have been difficult to believe my calm and tranquility concerning my own death or the death of the whole humankind. I don’t know. Today I was reading about octopus and the fact that their phylogenetic line with squid and cuttlefish separated around 370 million years ago. Not bad at all. We, humans, have been around 300.000 years as species, and our civilization dates from 12.000 years. Sometimes I find ridiculous the whole existential angst that we have developed out of our realization of being temporarily alive. Octopus only live 2 to 3 years; we live from 50 to 80 depending on how lucky you are when you are born. Many times, it is all about luck. 
 
-I guess I lack empathy, and I have an excess of transcendental perspective. It is undeniable that we have done a huge mess over this planet. That we have asphalted forest and place concrete over everything we could. We have built massive structures to show ourselves how tall our Babel Towers could get. And still, we are just apes. [*F\*cking talking monkeys*]( https://carlitofluito.github.io/letters2019_20/ohm-namae.html) nothing else. Life is so compelling, that a bird just entered the terminal and the dozens of people waiting for the plane couldn’t avoid looking at the chirping animal, flying around, probably confused about the place that just entered, wondering where are the trees, the leaves, the grains, the branches, the green. 
+I guess I lack empathy, and I have an excess of transcendental perspective. It is undeniable that we have done a huge mess over this planet. That we have asphalted forest and place concrete over everything we could. We have built massive structures to show ourselves how tall our Babel Towers could get. And still, we are just apes. [*F\*cking talking monkeys*]( https://carlitofluito.github.io/letters2019_20/ohm-namae.html), nothing else. Life is so compelling, that a bird just entered the terminal and the dozens of people waiting for the plane couldn’t avoid looking at the chirping animal, flying around, probably confused about the place that just entered, wondering where are the trees, the leaves, the grains, the branches, the green. 
 
 Before taking the psilocybin, I couldn’t fully understand [David Cain’s](www.raptitude.com) comments like: 
 
 >*Observe your surroundings and imagine how everything would have been like millions of years ago. *
 
-Or
+or
 
 > *Observe your surroundings and appreciate how pretty much anything of what you see would change if you would disappear right now from the earth. *
 
