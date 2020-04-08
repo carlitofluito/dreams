@@ -46,5 +46,45 @@ Revision and correction.
  
 11.14
  
+ 
+ 
+### Observe with perspectives. Worries disappear when you zoom out. (2020-04-08)
+
+Tegel Airport, Berlin, Germany – COVID times..^[If you like to see my face and hear me talking, click [here]().]
+
+Many people may call me irresponsible, but I think that the most punishable act right now is to be so close of taking a plane considering the environmental situation of the planet. 
+
+Psilocybin heals. It heals so much that it could have been difficult to believe my calm and tranquility concerning my own death or the death of the whole humankind. I don’t know. Today I was reading about octopus and the fact that their phylogenetic line with squid and cuttlefish separated around 370 million years ago. Not bad at all. We, humans, have been around 300.000 years as species, and our civilization dates from 12.000 years. Sometimes I find ridiculous the whole existential angst that we have developed out of our realization of being temporarily alive. Octopus only live 2 to 3 years; we live from 50 to 80 depending on how lucky you are when you are born. Many times, it is all about luck. 
+
+I guess I lack empathy, and I have an excess of transcendental perspective. It is undeniable that we have done a huge mess over this planet. That we have asphalted forest and place concrete over everything we could. We have built massive structures to show ourselves how tall our Babel Towers could get. And still, we are just apes. [*F\*cking talking monkeys*]( https://carlitofluito.github.io/letters2019_20/ohm-namae.html) nothing else. Life is so compelling, that a bird just entered the terminal and the dozens of people waiting for the plane couldn’t avoid looking at the chirping animal, flying around, probably confused about the place that just entered, wondering where are the trees, the leaves, the grains, the branches, the green. 
+
+Before taking the psilocybin, I couldn’t fully understand [David Cain’s](www.raptitude.com) comments like: 
+
+>*Observe your surroundings and imagine how everything would have been like millions of years ago. *
+
+Or
+
+> *Observe your surroundings and appreciate how pretty much anything of what you see would change if you would disappear right now from the earth. *
+
+It is tough to acknowledge and appreciate these truths when you are a teenager, fighting for consolidating your identity. But it is a sing of maturity to appreciate the level of irrelevance that we all carry in our existence. We are nothing. We are nothing as individuals, and we are nothing as species. We are just another manifestation of life in this planet, in this universe. And with the passing of the years, all our marks, even those with the deepest scars and impact in the planet, like radioactive waste, all of them will be gone. That’s it. Nothing more. 
+
+And I am incredibly tranquil writing this. I am incredibly chill. Like If I knew that these levels of truths, no matter how discomforting can be for some people are utterly undeniable. We have become too attach to life. We have grown distant from death. 
+
+We are children, maybe teenagers, striving to have  a consolidate identity as species, that is why it is so difficult for us to acknowledge that nothing of what we are doing, or what we will ever do is inherently irrelevant. 
+
+None of my words justify immoral behavior. None of my words justify the increasing of pain and suffering in living beings of this universe. Never get me wrong. Suffering and pain are something that living beings avoid and reject. Therefore, no matter how irrelevant we are, that is no excuse to cause harm or suffering in other forms of consciousness. 
+
+In a similar way, none of my words justify despair or suicide. None of my words justify the act of willingly finish our own consciousness. No matter how irrelevant any of our actions is, our current form of consciousness is a gift that should be enjoyed and experience to the utmost (respecting the no-harm/no-suffering moral of before as much as possible). 
+
+I am aware this is not high philosophy. Likely, if you have never subjectively experience what I am talking about you may be unable to embody and comprehend its meaning. Nevertheless, I try. I have the hope that some of my words can make people wake up a bit and realize their role in this whole game called life and the universe. We may just be a simulation running somewhere in a quantum computer of some sort. And that is okay. It doesn’t mean we cannot enjoy our current existence, and it doesn’t mean we should decrease the enjoyment of other existences. 
+
+I guess that the smaller we feel about ourselves, the more we need to prove and validate who we are and what we do, and the more we need to find relevance and importance in our own actions. On the other hand, the bigger we feel and experience our consciousness, the more we can appreciate our role in the whole life performance. Individually, we are just tiny atoms in the whole history of the universe. The whole human species is just a drop in the ocean of life and evolution in planet earth. 
+
+Let the waves wave and let the tides tide. Let the atoms merge and dissolve, let them structure and matter change. Let us try to maintain our existence, but let’s not get attached to it either. Let’s appreciate each of the moments of consciousness we have been gifted with and make the worries about non-existent realities disappear. 
+
+Enjoy the journey, because there is nothing else than the journey. The whole universe will freeze out at some point, and existence has no more meaning than the one you create out of love in your own individual life. Love life and meaning will appear by its own. 
+
+
+
 
 
