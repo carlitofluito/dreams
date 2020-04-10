@@ -28,7 +28,7 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 - **Empty mind**:	[Dream/automatic writing](https://writingcooperative.com/the-case-against-morning-pages-84782e759cd2) + [publish it](https://bookdown.org/home/).
 
-*15-45min*
+*30-45min*
 
 -	**Reconnect body**: Open yoga/mobility awakening + [affirmations] 
 

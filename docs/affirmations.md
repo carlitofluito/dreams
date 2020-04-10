@@ -27,7 +27,7 @@ I meditate. Meditation brings sustainable wellbeing.
 
 I don't masturbate. Masturbation drains my energy, life force, and motivation.
 
-I eat fruit. Fruit is the way of saving my life and my planet. 
+I eat fruit. Fruit is the way of saving my life and the planet. 
 
 I am enough and I deserve more. 
 

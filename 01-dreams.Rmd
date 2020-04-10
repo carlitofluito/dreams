@@ -1,5 +1,6 @@
 # Dreams {#dreams}
 
+WWithout any real idea about interpreting dreams, I am using [*DreamBible*](http://www.dreambible.com/) website to make some sense of what is going on in my subconscious mind. If you know better resources, please, [contact me]( https://carlitofluito.github.io/dreams/index.html#intro). 
 
 ## *Corona Times* in Berlin.2020-04 
 
@@ -69,6 +70,6 @@ At a given moment, I realized that instead of thinking out loud and showing Pedr
 
 Today, considering that 15 minutes of automatic writing have gone already, that is the only lesson of the dream: [“*Universal basic income*”]( https://en.wikipedia.org/wiki/Basic_income). I will do a bit of research what does it mean that the president of a country seeks for one’s advice, and that he is with a shameless diarrhea while walking on the street. 
 
-Although I didn’t watch the news yesterday, I was reading [Aljazeera]( https://www.aljazeera.com/) and [Financial Times]( https://www.ft.com/) before going to sleep, and there is where I found [this]( https://www.aljazeera.com/blogs/europe/2020/04/coronavirus-world-fairer-place-200409094032069.html) [two]( https://www.ft.com/content/927d28e0-6847-11ea-a6ac-9122541af204) articles about UBI. Those two combined with my [communal narcissism]( https://www.psychologytoday.com/us/blog/finding-new-home/201812/the-communal-narcissist-new-kind-narcissist) and that moment of empathy with Pedro Sanchez before going to sleep probably made a good mix in my [REM sleep]( https://en.wikipedia.org/wiki/Rapid_eye_movement_sleep) 6 hours later. Diarrhea is, after all, another symptom of [Covid-19] (https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
+Although I didn’t watch the news yesterday, I was reading [Aljazeera]( https://www.aljazeera.com/) and [Financial Times]( https://www.ft.com/) before going to sleep, and there is where I found [this]( https://www.aljazeera.com/blogs/europe/2020/04/coronavirus-world-fairer-place-200409094032069.html) [two]( https://www.ft.com/content/927d28e0-6847-11ea-a6ac-9122541af204) articles about UBI. Those two combined with my [communal narcissism]( https://www.psychologytoday.com/us/blog/finding-new-home/201812/the-communal-narcissist-new-kind-narcissist) and that moment of empathy with Pedro Sanchez before going to sleep probably made a good mix in my [REM sleep]( https://en.wikipedia.org/wiki/Rapid_eye_movement_sleep) 6 hours later. Diarrhea is, after all, another symptom of [Covid-19](https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
 
 Enjoy your day and protect yourself.   
