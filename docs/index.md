@@ -1,7 +1,7 @@
 --- 
 title: "Dreams and morning reflections (Automatic writings)"
 author: "Carlos Alcala a.k.a. Carlito Fluito"
-date: "2020-04-08"
+date: "2020-04-10"
 site: bookdown::bookdown_site
 documentclass: book
 bibliography: [bibliography.bib]

@@ -46,3 +46,29 @@ Keep on dreaming and enjoy your quarantine time.
 7.44 - Revision and correction – 8.53
 
 2 hours of work already :-) Now, I can continue with the routine, and do some yoga to fix the contraction of my neck. 
+
+
+## *Corona Times* in Valladolid (Spain). 2020-04
+
+### Presidential diarrheic advice. The need of [UBI](https://en.wikipedia.org/wiki/Basic_income) (2020-04-10)
+
+8.40
+
+Not all dreams are easy to understand. Not everything is so obvious, even if it looks obvious. It is my second night in Spain, the first in Valladolid. Last time I was here was January. It was Christmas. It is my family house, and somehow, now is my house as well. It has to be. Supposedly, I have to spend here, at least, the next 15 days here. I have to spend the following weeks in Spain, in Valladolid, in this house. And today, I dreamt with [Pedro Sanchez]( https://en.wikipedia.org/wiki/Pedro_S%C3%A1nchez), the president of Spain. I dreamt he manifested somewhere, online or offline, his willing to communicate with me, that he appreciated my advices, my comments and my insights. I was okay with that, and then, I found myself walking around the center the town, on the main square. There, I met him. He was coming back from work, from the city hall, maybe.  
+
+We started talking, and I told him what I thought last night before start reading [Hesse’s]( https://en.wikipedia.org/wiki/Hermann_Hesse) [*Steppenwolf*](https://en.wikipedia.org/wiki/Steppenwolf_(novel)): “I wouldn’t like to be the president of my county at all”. He is probably suffering every night that he goes to sleep, he is probably quite stressed, to see how the country is crashing, how people are dying, how difficult is to manage everything in this situation. I told him that advising politicians was okay for me, because one can give an input in the system without having the responsibility of the outcome, of the situation. Besides, it was surprising how people can assume [machiavellianism]( https://en.wikipedia.org/wiki/Machiavellianism_(psychology)) in politicians. They are probably doing their best with as much knowledge as they can. If not, it wouldn’t make sense that they are actually trying to save lives. I don’t know. I wouldn’t get it then.
+
+Anyways, in the dream, we met in the main square and he mentioned that he had to go to Madrid every day. I suggested him that it could be more convenient to move closer to the train station, to have less commuting time. After a bit of chitchat about his life, with me, empathizing about his situation, I asked what he wanted from me. He mentioned that he wanted my advice, something like a *What would you do in this situation?* type of question. I somehow started thinking out loud while we were walking towards the train station. I don’t know why we were walking there, maybe because he was leaving, or maybe because he was accompanying me. Not sure. 
+
+It was interesting that, on the way, he was stopping several times to shit on trees, and wherever he could on hidden places of the streets. It seemed that he didn’t care at all. He was dressed elegantly, with jacket and trousers. And when I was looking at his face, he had the face of one of my friends, one that is always claiming to know everything concerning politics, one that is always updated about the latest political detail, and that is quite opinionated about the world. Nevertheless, one that is commonly wrong about what he says, or at least, holds extremists, biased viewpoints, or is blind to alternative interpretations. 
+
+We were walking and he kept on stopping from time to time to shit. Then, while we continue walking, some people looked at him, judgmentally, making comments, and realizing that he was the president of the country. 
+
+
+At a given moment, I realized that instead of thinking out loud and showing Pedro Sanchez that I actually didn’t know much about anything, I opted to remained silent, talking to myself,  listening to my thoughts, and trying to look smart. After a while, and just before waking up, one of the things I told him clearly was: “***Universal basic income***”.
+
+Today, considering that 15 minutes of automatic writing have gone already, that is the only lesson of the dream: [“*Universal basic income*”]( https://en.wikipedia.org/wiki/Basic_income). I will do a bit of research what does it mean that the president of a country seeks for one’s advice, and that he is with a shameless diarrhea while walking on the street. 
+
+Although I didn’t watch the news yesterday, I was reading [Aljazeera]( https://www.aljazeera.com/) and [Financial Times]( https://www.ft.com/) before going to sleep, and there is where I found [this]( https://www.aljazeera.com/blogs/europe/2020/04/coronavirus-world-fairer-place-200409094032069.html) [two]( https://www.ft.com/content/927d28e0-6847-11ea-a6ac-9122541af204) articles about UBI. Those two combined with my [communal narcissism]( https://www.psychologytoday.com/us/blog/finding-new-home/201812/the-communal-narcissist-new-kind-narcissist) and that moment of empathy with Pedro Sanchez before going to sleep probably made a good mix in my [REM sleep]( https://en.wikipedia.org/wiki/Rapid_eye_movement_sleep) 6 hours later. Diarrhea is, after all, another symptom of [Covid-19] (https://en.wikipedia.org/wiki/Coronavirus_disease_2019)
+
+Enjoy your day and protect yourself.   
