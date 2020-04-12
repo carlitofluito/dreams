@@ -1,6 +1,6 @@
 # Dreams {#dreams}
 
-WWithout any real idea about interpreting dreams, I am using [*DreamBible*](http://www.dreambible.com/) website to make some sense of what is going on in my subconscious mind. If you know better resources, please, [contact me]( https://carlitofluito.github.io/dreams/index.html#intro). 
+Without any real idea about interpreting dreams, I am using [*DreamBible*](http://www.dreambible.com/) website to make some sense of what is going on in my subconscious mind. If you know better resources, please, [contact me]( https://carlitofluito.github.io/dreams/index.html#intro). 
 
 ## *Corona Times* in Berlin.2020-04 
 
