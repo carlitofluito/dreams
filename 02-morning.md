@@ -128,9 +128,10 @@ We are in a historical moment where, being 27, anecdotes from my childhood may s
 
 Falling into topics, this is what 1985 seems to me today:
 
-```{r 1985, fig.cap= " I just recognized [*The A-Team*](https://en.wikipedia.org/wiki/The_A-Team), and I was doubting about former Spanish president [Felipe Gonzalez]( https://en.wikipedia.org/wiki/Felipe_Gonz%C3%A1lez).", fig.margin = TRUE, out.width = "75%", fig.align='center', echo=FALSE}
-knitr::include_graphics("docs/images/2020/1985.jpg")
-```
+<div class="figure" style="text-align: center">
+<img src="docs/images/2020/1985.jpg" alt=" I just recognized [*The A-Team*](https://en.wikipedia.org/wiki/The_A-Team), and I was doubting about former Spanish president [Felipe Gonzalez]( https://en.wikipedia.org/wiki/Felipe_Gonz%C3%A1lez)." width="75%" />
+<p class="caption">(\#fig:1985) I just recognized [*The A-Team*](https://en.wikipedia.org/wiki/The_A-Team), and I was doubting about former Spanish president [Felipe Gonzalez]( https://en.wikipedia.org/wiki/Felipe_Gonz%C3%A1lez).</p>
+</div>
 
 Tonight, I was dreaming that kids were teaching me a lesson about how to do things, how to use devices, how to live in an environment that my brain hasn’t had time to adapt to. I likely felt similar to how my grandma feels when I explained her for the fourth time how to send a voice note on WhatsApp. 
 
@@ -144,9 +145,10 @@ I may be wrong, I may not. I guess I have read too much [Tim Urban]( https://www
 
 >[*What does it feel like to stand here?*](https://waitbutwhy.com/2015/01/artificial-intelligence-revolution-1.html)
 
-```{r edge, fig.cap= " If you read [*Wait but Why*](https://waitbutwhy.com/), it shouldn’t be difficult to follow my train of thought. If you don’t, you should. Start [here](https://en.wikipedia.org/wiki/Wait_But_Why).", fig.margin = TRUE, out.width = "75%", fig.align='center', echo=FALSE}
-knitr::include_graphics("docs/images/2020/Edge1.png")
-```
+<div class="figure" style="text-align: center">
+<img src="docs/images/2020/Edge1.png" alt=" If you read [*Wait but Why*](https://waitbutwhy.com/), it shouldn’t be difficult to follow my train of thought. If you don’t, you should. Start [here](https://en.wikipedia.org/wiki/Wait_But_Why)." width="75%" />
+<p class="caption">(\#fig:edge) If you read [*Wait but Why*](https://waitbutwhy.com/), it shouldn’t be difficult to follow my train of thought. If you don’t, you should. Start [here](https://en.wikipedia.org/wiki/Wait_But_Why).</p>
+</div>
 
 Enjoy your day and live in the present. 
 
