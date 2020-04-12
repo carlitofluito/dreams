@@ -85,11 +85,6 @@ Let the waves wave and let the tides tide. Let the atoms merge and dissolve, let
 Enjoy the journey, because there is nothing else than the journey. The whole universe will freeze out at some point, and existence has no more meaning than the one you create out of love in your own individual life. Love life and meaning will appear by its own. 
 
 
-
-
-
-
-
 ## *Corona Times* in Valladolid. 2020-04
 
 ### Grandad’s old war tales - Batallitas de abuelo Cebolleta. (2020-04-12)
@@ -98,9 +93,9 @@ Enjoy the journey, because there is nothing else than the journey. The whole uni
 
 Kids and machines will make us highly irrelevant. It is this simple. There is no other way around. 
 
-I used to think I was young, but my right knee aches when I sleep in cold small places, like cars or floors. Tonight, I was sleeping on the carpet of the living room of my family house, and I couldn’t breathe properly. Maybe the dust of the carpet; maybe my respiratory system. In any case, ailments of old age.  
+I used to think I was young, but my right knee aches when I sleep in cold small places, like cars or floors. Tonight, I was sleeping on the carpet of the living room of my family house, and I couldn’t breathe properly. Maybe the dust of the carpet; maybe my respiratory system. In any case, ailments of old age.
 
-Kids in the upcoming years will prove themselves infinitely more prepared and skilled than us, adults. What we can do will be of little use. Maybe teach them how we used to do things years ago; maybe just remember them that things used to be different on the past. After all, who of us likes to hear grandpa’s old war tales? 
+Kids in the upcoming years will prove themselves infinitely more prepared and skilled than us, adults. What we can do will be of little use. Maybe teach them how we used to do things years ago; maybe just remember them that things used to be different in the past. After all, who of us likes to hear grandpa’s old war tales? 
 
 We are in a historical moment where, being 27, anecdotes from my childhood may seem a First World War tale to 7 years old. Imagine being born today, in 2020. Seven years ago, 2013 (my third year of university in Barcelona) look to me just around the corner. But for a newborn kid like me, 7 years before my birth (1992) used to be 1985^[Thanks to [Wait But Why]( https://waitbutwhy.com/) for [the inspiration]( https://waitbutwhy.com/2020/01/its-2020-and-youre-in-the-future.html).].
 
@@ -110,24 +105,23 @@ Falling into topics, this is what 1985 seems to me today:
 knitr::include_graphics("docs/images/2020/1985.jpg")
 ```
 
-Tonight, I was dreaming that kids were teaching me lesson about how to do things, how to use devices, how to live in an environment that my brain hasn’t had time to adapt to. I likely felt similar to how my grandma feels when I explained her for the fourth time how to send a voice note on WhatsApp. 
+Tonight, I was dreaming that kids were teaching me a lesson about how to do things, how to use devices, how to live in an environment that my brain hasn’t had time to adapt to. I likely felt similar to how my grandma feels when I explained her for the fourth time how to send a voice note on WhatsApp. 
 
-On the other hand, my grandparents from my father side cannot care less about technology. They wonder when they see my face on a screen and respond to what I say, no matter whether it is a video record or a video call. 
+On the other hand, my grandparents from my father's side cannot care less about technology. They wonder when they see my face on a screen and respond to what I say, no matter whether it is a video record or a video call. 
 
-However, we awe together when we see my second niece, their great-granddaughter, using the smartphone as if it was second nature. Between great-granddaughter and great-grandparents there are about 80 years of difference. Between my second niece and me, just 20. One fourth. This means, I am getting older 4 times faster. Using my extremely faulty math, the difference between my grandparents and me, is about 60 years. In just 15 years, one fourth, when I become 42, I will feel as outdated towards my second niece, as my grandparents feel with me now.
+However, we awe together when we see my second niece, their great-granddaughter, using the smartphone as if it was second nature. Between great-granddaughter and great-grandparents, there are about 80 years of difference. Between my second niece and me, just 20. One fourth. This means I am getting older 4 times faster. Using my extremely faulty math, the difference between my grandparents and me is about 60 years. In just 15 years, one fourth, when I become 42, I will feel as outdated towards my second niece, as my grandparents feel with me now.
 
-I can choose to be a wannabe updated “*WhatsApp grandma*” spamming the family with videos that no one will watch, or just accept the speed of development. I may try to speak to a device’s microphone that is not anymore in the palm of my hand, when it is actually an network already merged with my brain and [working through my thoughts](https://waitbutwhy.com/2017/04/neuralink.html). 
+I can choose to be a wannabe updated “*WhatsApp grandma*” spamming the family with videos that no one will watch, or just accept the speed of development. I may try to speak to a device’s microphone that is not anymore in the palm of my hand when it is actually a network already merged with my brain and [working through my thoughts](https://waitbutwhy.com/2017/04/neuralink.html). 
 
 I may be wrong, I may not. I guess I have read too much [Tim Urban]( https://www.ted.com/speakers/tim_urban). But the question is worthwhile:
 
 >[*What does it feel like to stand here?*](https://waitbutwhy.com/2015/01/artificial-intelligence-revolution-1.html)
 
-```{r edge, fig.cap= " If you read *Wait but Why*, shouldn’t be difficult to follow my train of thought. If you don’t, you should. Start [here](https://en.wikipedia.org/wiki/Wait_But_Why).", fig.margin = TRUE, out.width = "75%", fig.align='center', echo=FALSE}
+```{r edge, fig.cap= " If you read [*Wait but Why*](https://waitbutwhy.com/), it shouldn’t be difficult to follow my train of thought. If you don’t, you should. Start [here](https://en.wikipedia.org/wiki/Wait_But_Why).", fig.margin = TRUE, out.width = "75%", fig.align='center', echo=FALSE}
 knitr::include_graphics("docs/images/2020/Edge1.png")
 ```
 
 Enjoy your day and live in the present. 
-
 
 
 
