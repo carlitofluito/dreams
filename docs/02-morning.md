@@ -85,6 +85,33 @@ Let the waves wave and let the tides tide. Let the atoms merge and dissolve, let
 Enjoy the journey, because there is nothing else than the journey. The whole universe will freeze out at some point, and existence has no more meaning than the one you create out of love in your own individual life. Love life and meaning will appear by its own. 
 
 
+
+
+### Man-made life vs. Universe-made life (2020-04-09)
+
+14.40
+
+Bus from Madrid to Valladolid (Spain)
+
+First day of pseudo quarantine. 
+
+Yesterday, I was in Berlin, in Paris, and in Madrid. Three European capitals. All empty, from airport to airport. Actually, Berlin looks pretty normal; Paris was empty from the airplane; and Madrid empty from the streets. 
+
+I am afraid of sneezing too loud. I am still with my thinking and my feelings of enjoyment and pleasure. Everything is empty, the planet is breathing. It is taking a break from humans. It is common sense for me. Maybe the next pandemic will not be so tolerant with us. Actually, we are the pandemic. Covid is just the antidote. It is the balance. 
+
+Today, I did nothing. The friend that hosted me for one night in a tiny guest’s room at his place told me not to touch anything, not to go out, not to do much. I understand his concerns. I obeyed. Hydroalcoholic solution at the door and sleeping all morning because there was not much to do. I almost meditate but I used the smartphone in the morning. Too much dopamine. That was the mistake, as always. 
+
+At my family house, my brother can manage my smartphone, so I can use more the mornings; and the days; and the nights. Smartphones are sucking people’s lives, and this is one of those clear situations. 
+
+What can I say about the pandemic? Politics and discussions. Funerary cars, and the police not allowing people to travel to their homes because they already have an alternative. The mountain looks beautiful. Psilocybin still works. It is like being high for life. That is wonderful. Once every six months. 
+
+All this post-apocalyptic panorama seems to me a very wonderful scenery. No humans. Animals taking over. I don’t think I am a psychopath; I just prefer to empathize with the weakest, with the most vulnerable. In this case, it is nature and not human. 
+
+I dreamt with Zambia. I dreamt I was there already. Creating, working with kids, in a big industrial unit. I am traveling to save money; to have enough to carry on with my plan; to buy a land and say “*Ciao ciao*” to all this game called society. I realized I don’t want to play anymore to these rules. They are not for me. And that is okay. Although it seems that it is not either for most of us. 
+
+Robots will end up taking over. And that is not life as we know it. It is a different type of life. A man-made life. But *man-made life* has consisted in destroying *universe-made life*. It is weird. It put us in perspective. How much we have changed all this.  
+
+
 ## *Corona Times* in Valladolid. 2020-04
 
 ### Grandad’s old war tales - Batallitas de abuelo Cebolleta. (2020-04-12)
