@@ -96,5 +96,25 @@ I need people so much. I just know how to improvise when I am by myself, otherwi
 Anyway, at my parent house, with the security of a family that is condemned to accept me at my worst, and with the thought in the back of my mind to put my stuff in a backpack, and just leave for good, it is easy to placate the stories of miseries. However, dreams don’t lie, and all those feelings and moments always appear catching one in their vulnerable states of consciousness, just to raise the question about whether this is what you wanted all along, or you just have learned to adapt magnificently good to an *okayish* situation. 
  
 Seems that the only redemption left is writing. So, I do. Waiting for you at the other side of the fridge, or maybe still struggling to cross it. 
+
+
+
  
 
+
+
+### Destructively good and escape with fruits. 2020-04-25
+
+9.21
+
+We were at the scouts. There were a lot of leftover fruits. Apples, mandarins, and bananas. There was also a piece of cake in the co-pilot glove box in the car. We were coming back from the camp. Going home. 
+
+One of the previous scenes has been the collection of that fruit, where there has been a sort of encounter between the force of good and evil. The apparently good has never had to take everything, always wanting to share what he had and even rejecting pleasures for himself. The apparently bad was pursuing control. She wanted to be in charge of the situation, controlling how things were done and how they evolve. 
+
+We had to go down several floors in the dreams. Travel to the underground. There, they good and evil characters were left before we return home. They were sort of dead or sleep. Each of them had different elements. And reading some scriptures, we could see that the apparently good had a last wish of not having all the resources once dead. Thus, someone, maybe me, took one of his resources (I think it was 6 dices, one located with a different number). Thus, the number one was given to the other character (the apparently evil). But the moment one of the dices was withrown from the self-sacrifice man, and given to the other, so she could rule on that kind of world, the man became a sort of angel of fire, like a dragon, and starts spitting flames of fire all around the underground. 
+
+We escape, and go up. There, the presence of that angel of fire is still sensed. He is coming, so we need to rush. We collect all the fruit possible as soon as we can and we leave with the presence of the fire and destruction coming closer and closer. 
+
+The people that are with me are *Rufino*, an old classmate and scout mate, and *Juan*, a friend from the Scouts. We arrive to the car, then we leave with the huge bags of fruits which are for sharing and giving to everyone. However, there are too many fruits for so little people. Bus somehow, it was the right things to do, since otherwise, the fruits would have been destroyed by the fire of the angel.
+
+Sincerely, I don’t know. I hope it gets some meaning in the future. 

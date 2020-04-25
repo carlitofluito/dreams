@@ -2,6 +2,8 @@
 
 I have always struggled with routines. My ADHD brain fights against them, even when it is one of the things that I can get more benefit from. I always find something better and more important to do than what is schedule. I am a quite creative person, and following specific and precise repetitive patterns may not match with my body/mind/soul state at a given moment. That is why, the more freedom and openness, the best. So, my routine is about finding a balance between the rigidity and structure of repetition, and the flexibility and discovery of improvisation. 
 
+## Morning routine
+
 This is my latest attempt of building a routine. There are few improvements. 
 
 1.	**There are no hours, just activity timings**. Sometimes I sleep more, sometimes less. My sleep patterns are unregulated, and sometimes I am a night owl that goes to sleep at 4am; and other days, I am waking up at 5.45 with the sunrise. I am quite unpredictable. Thus, setting up time activities instead of hours of the day give me more degrees of freedom and independence. 
@@ -75,3 +77,46 @@ I hope these ideas help those that have been tried for some time to establish a 
 
 
 
+
+
+
+
+## Evening routine
+
+Lately, I been motivated enough to give a try to an evening routine. It has been working so far, because it basically means to write few things in a paper. Hopefully, in the future can include other practices that close the daily circle in a more fruitful way. I am mostly inspired by Marcus Aurelius’ Nighttime routine, that I found on [this video]( https://www.youtube.com/watch?v=HhV_Y8C5YKo), and the *5 minutes journal* from the [journaling strategies of Tim Ferriss](https://www.youtube.com/watch?v=UFdR8w_R1HA&t=609s).
+
+I try to find strength and motivation to jot down, at least some words, even when I don’t feel like it. Let’s see how far can I get. 
+
+---- 
+
+- **Top three goals**: In a small notebook, I write down the top three goals for the next day and I review whether I accomplish the top three that I set to myself in the previous day. It is just a short to do list to keep me humble and not becoming overconfident and too ambitious leading to frustration. Just write down the top three priorities that you sincerely think that can finish tomorrow. 
+
+- **Five minutes journal**: Just as bullets I write down:
+
+    - *3 things I am grateful for*, they can be more general of my life, or more specific about the day;
+
+    - *3 affirmations* that remind me that I am making progress, I am alive, or I am growing as a person;
+
+    - *3 amazing things of the day*, I try to pick a different 3 than the gratitude ones;
+
+    - *3 improvements*, things that I didn’t do as well as I had planned and expected, so, I will be primed to try to correct them next day; 
+
+    - *naming good things*, paying attention to the things that I performed correctly and developed as I had planned or expected. 
+
+- According to the video the **Marco Aurelius’ routine* is built in several exercises. I am trying to include some exercises, while others are already inside the previous journaling strategy:
+      
+    - *Contemplation of the sage*: Asking yourself, *What would your ideal person do in a given situation?*. It helps defining what you want in life and who you need to be for that to happen, filling the gap between who you are and the person that you need to be. It  help keeping the motivation up
+      
+    - *A view from above*: Observe yourself in the room, and then keep on zooming out and up, seeing your street, city, country, planet. It helps gaining perspective. You can imagine that you are a video game character that is controlled by external forces, so you can make yourself choose the right action.   
+      
+    - *Physical exercise*. I am two minded about this. I have read in different places that is best not to exercise at night in order to wind down and have a good sleep. But on the other hand, I am a night person with hyperactivity, so my body is super energetic throughout the day, and at on the evening I feel an extra boost of alertness. Thus, I think I am going to experiment with this for some time, doing [8 minutes abs]( https://www.youtube.com/watch?v=XRA2H853gUM) or something similar. 
+        
+    - *Mediation*. I keep fluctuation with my mediation practice. In the best of cases, I meditate once in the morning and later in the evening. However, there are still days where I skip meditation. Stoics and Seneca has also a [*Contemplation on death*]( https://donaldrobertson.name/2014/10/10/the-contemplation-of-death-sample-chapter-from-teach-yourself-stoicism-2014/), where acknowledging the certainty of your ephemeral existence (memento mori) and aiming for a “*good death*”, focusing on improving things under your control. I feel tempted to try the exercise on the near future. 
+
+    - *Reviewing the day*. This complements with the journaling. Reviewing the different actions and situations of the day and congratulate for what went well and identify the problems. In this way you can track progress and choose what goals you want to focus on. 
+
+    - *Journaling*. Write down thoughts and situation about the day that you consider worthwhile keeping. I use the *Five minutes journal* technique described above. 
+
+So, to sum up, for the moment I would feel satisfied if I do some *journaling*, *physical exercise* or stretching (yin yoga), and a *meditation session*. I have found that some exercises are too motivating for the night, like the *Contemplation of the death* or *sage*, and I find more logical to do them on the early evening, when my motivation to work drops. 
+
+I will keep on experimenting and updating the post. 
