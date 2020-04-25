@@ -103,7 +103,7 @@ I try to find strength and motivation to jot down, at least some words, even whe
 
     - *naming good things*, paying attention to the things that I performed correctly and developed as I had planned or expected. 
 
-- According to the video the **Marco Aurelius’ routine* is built in several exercises. I am trying to include some exercises, while others are already inside the previous journaling strategy:
+- According to the video the **Marco Aurelius’ routine** is built in several exercises. I am trying to include some exercises, while others are already inside the previous journaling strategy:
       
     - *Contemplation of the sage*: Asking yourself, *What would your ideal person do in a given situation?*. It helps defining what you want in life and who you need to be for that to happen, filling the gap between who you are and the person that you need to be. It  help keeping the motivation up
       
