@@ -154,3 +154,17 @@ Enjoy your day and live in the present.
 
 
 
+
+
+### Money mindset (2020-04-26)
+
+09.40
+ 
+Today I am going to make money. Not because I need it, but because I can. Also, because I need it. This is a win-win relationship with the world. If I am happy, people around me are happy. If I build my goals, and I reach the places where I want to be, everyone will be winning. I will be raising the vibration of the planet, and that is meaningful, that is important. 
+ 
+Spirituality is speed and deep psychology. Yesterday, in a brief, meditation/activation, I said goodbye to my previous sources of money, I said goodbye to my promoter, V., who gave me a scholarship of 2.000€ per month for doing a Ph.D. that I didn’t finish; and I said goodbye to R., my landlord, who saved me from spending that money in the rent of my flat. Now, I am at my parents' house, after two months of not receiving my salary, and after having spent part of my savings on the rent in Berlin. I am ready to work hard again. I have several books to read, several videos and websites to prepare and do, and several clients to catch. Money is out there, clients are out there, and I am the one that has to find them. I am intelligent enough to go not only for those that have some money but for those that have high amounts of money as well. I am ready to have high-paying clients, and I am going to find them. And they are going to find me. There is no problem or contradiction if at the same time I am making free, high-quality content for free to all those that cannot afford my sessions or my courses. I don’t need this or that. I have myself and I am going to do it. It is just a step by step process. I am on it, I am with it. 
+ 
+And that’s it. I am flexible enough to not force myself to write during the whole morning, to not break the momentum and motivation with writing 30 minutes. Sometimes just half a page is enough to be clear on what I am going to do. 
+ 
+Enjoy your day. 
+
