@@ -156,6 +156,59 @@ Enjoy your day and live in the present.
 
 
 
+### Karmic cleansing (2020-04-17)
+
+
+10.51
+
+How do you see it, my friend?
+
+How do you see it? Do you think that you can already start with your room, or not yet?
+
+Do you think that there is a gallery and Alejandro's storehouse that are still to be done? Can you leave the kitchen perfect and before starting with and then everything will flow?
+
+This is a karmic cleansing, which dad is not being grateful for, and he keeps thinking that I am making it selfishly, although I may do it selfishly as altruism is selfish, but it benefits everyone. 
+
+David, the same. He stays in his short-term, thinking on what his perception is showing now and not realizing what it can become in just a few hours or days. They keep on focusing on the negative, in the chaos they perceive, instead of on the order that they could perceive if they look at the bathrooms, or if they look at the wardrobes of the gallery, or kitchen. They don't realize that the clothes are done. They don't realize that the food has been cooked all these days. Mother is able to see it a little more, but not completely. 
+
+Anyways, what do you dream of?
+
+Do you dream of the idea of sleeping in the bed, like C.? Do you dream of the idea of cleaning up yourself? That is the problem. You have to give the phone to your mother at night, you have to find ways to block your problems, you know what they are. You know that it makes your life you don’t want, and you don’t deserve. You just need to isolate away from what you know is bad for you. 
+
+But at least, you have healed from the loneliness, from your friends. You know your friends and you know your plan and you know that your friends will join you when your plan starts to materialize. You have seen it already. You know it is not difficult and you know you have a strategy, a system. You know what to do to reach there. You will go to Bali I for a little bit to get to know some famous guys,
+
+There, where you are already in the game, you know you are in this game where you are cleaning and ordering your house an that is what you have. No problem. This is your moment. Now, this is your place, this is what you have to do. 
+ 
+ 
+Probably you have to switch your identity. You have to become a new person, and you don’t have a lot of time to do it. You are moving fast, and fast you to switch your identity. You need to develop and sustain routines. Saol told you, and he knew it perfectly that is your next step to become serious with your mission and with what you can do now. You don’t lose your chill anymore, at least yesterday you were able to show Cillo your limits and your limits are
+ 
+Don’t threaten my life.
+
+Don’t shout.
+
+Don’t lie.
+
+Don’t deny reality.
+
+Don’t call me selfish or egoist.
+
+I will be extremely clear about that. Clear and concise. 
+ 
+He cannot say “*Don’t touch my balls*” as a limit because I will go through it. 
+
+I am not A. and I am not a manipulative and destructive monster that just wants to destroy people. I want to make them grow and they are the ones that are suffering because of their stubbornness. It is not my problem. If they would let them be guided, they may discover how easy is to make everything going and moving, but they have a lot of barriers. Dad has a lot of barriers, but little by little they are being overcome. Well, hopefully, it will be gone soon 
+
+Let’s see how it develops. For the moment, just keep on going. Maybe focus on your room, on yourself for a bit today. Organize Alejandro’s room and then move forwards and forward. That’s what I have to do. To keep on moving, Probably we’ll reach a moment when they will tell me “*Thank you*” and that they want to do it with me, but until that moment arrives it will be a bit of an uphill battle. 
+ 
+You heard the lock of the door of the bath now that Cillo went inside. They don’t realize, but that is lack of trust and shyness, or whatever the name. They are ashamed of their own bodies and that’s a big problem, a problem that takes longer, and that little by little we are overcoming. I am not ashamed of my body and that is what allows me to be happier, to be able to move naked around, to fart, to burp naturally, to eat like a pig. Because maybe I am a pig. I am not ashamed of it. I am what I am, and that is it.
+
+You can check if you feel the connection with something of what I write and then move forward, what can I say? I have worked for being in front of a computer for years. I have tons and tons of paper, or written words, that if I would like to write it down it would take me a lot. That is the next level, when I have a single objective and I am finishing things one by one, thanks to my routine, when I spend days and days working because I love my work, I love what I do, I love wiring and I love stretching and training day after day. That is my moment and my situation, to prepare my body, and to move forward with my writing. I want to show my evolution to the world, I want to prove that it is possible, that I have done that right now. “*I am still stuck*” means, I have progressed, I am moved forwards enough to be able to write and publish. That’s it. 
+ 
+I generate too much, and for this moment, this is fine. 
+
+It is already 15 minutes. 
+
+
 ### Money mindset (2020-04-26)
 
 09.40
@@ -167,4 +220,73 @@ Spirituality is speed and deep psychology. Yesterday, in a brief, meditation/act
 And that’s it. I am flexible enough to not force myself to write during the whole morning, to not break the momentum and motivation with writing 30 minutes. Sometimes just half a page is enough to be clear on what I am going to do. 
  
 Enjoy your day. 
+
+
+
+### Tolerating lack of faith (2020-04-28)
+
+**Paradoxes of tolerance.**
+
+23.23^[This is a night reflection actually.]
+
+Hope my words resonate with you. 
+ 
+If you need a map to understand me, here it is:
+ 
+1. If you are intolerant with other people, you first have to learn how to be tolerant with yourself. You can do this by practicing your acceptance. 
+ 
+2. Once there, when you are tolerant of yourself and you have accepted who you are at this given moment, you can develop tolerance and acceptance for others. You can do this practicing compassion.^[Warning note: I just went peeing and realized that all this is an oversimplification, since my lovely psychopath made me grow by 1) tolerating things in myself, while 2) not tolerating certain things in others. Thus, one learns how to protect their own energy and stablish healthy limits with other people. But those are topics and nuances for another text.] 
+ 
+3. Once there, when you are tolerant, acceptant, and compassionate with yourself and with others at this given moment, you can develop intolerance towards yourself. You can do this by practicing...^[This text is sparked by Regan Hillyer's [*"How what you tolerate creates your reality""*](https://www.forbes.com/sites/forbescoachescouncil/2017/01/17/how-what-you-tolerate-creates-your-reality/) and Alyse Parker's [*“We are not the highest version of ourselves which we can imagine. We are the lowest version of ourselves which we can accept. If you want to achieve your dreams you must turn them into irrefutable standards.”*](https://www.instagram.com/p/B35WEXGgQc9/?utm_source=ig_web_copy_link). Since I like to complicate things, I wrote my own realization.]
+ 
+----
+ 
+I have to tolerate more; at the same time, I tolerate less. I have to tolerate less negative emotions within myself. But I have to tolerate more negative emotions within others. 
+ 
+I used to be unable to tolerate people. I used to be unable to tolerate negative emotions in others, specially when they were transmitting me those lower vibrations. Because I couldn't tolerate these negative emotions in myself, I couldn't tolerate them (emotions) on them (people) either. That is why I couldn't tolerate them (people) altogether. 
+ 
+I have always been a quite intolerant person with other people. I couldn't stand incompetence, I couldn't stand mediocrity, I couldn't stand how people were doing things so wrong that I could do so right. It was because they were generating negative emotions and feelings within myself.
+
+Same as when I was trying to explain something to someone and they were not understanding me. Those negative emotions on myself were what I wasn't able to tolerate, and that is what made me unable to tolerate them (people). My lack of tolerance to people was a projection of those negative feelings on myself. 
+ 
+Nowadays, that phase is gone. I have recently gone through the stage of not caring about what others do. Of telling myself things like "*Fine, if they want to try something, they can. If they are doing something, good for them. I know I can do it better.*" However, maybe deep inside, I was still a bit frustrated with their mediocrity. Sometimes, I even told myself that I was happy when I was seeing others succeeding. Even though, I still knew that what they were doing, I could do it, and I could do it better. 
+ 
+However, today, after this tolerating lesson, things are different. 
+ 
+"**_We are not the best version of ourselves that we can imagine. We are the worst versions of ourselves that we can tolerate._**" A mixed quote of two wonderful souls, [Regan Hillyer](https://www.reganhillyer.com/) and [Alyse Parker](https://www.instagram.com/alyseparkerr/?hl=en). 
+ 
+I, [Carlito Fluito](https://www.carlitofluitoideas.com/), which is a soul developed out of paradoxes, am simultaneously arriving and leaving at a new stage, a new interpretation of what tolerance and intolerance mean. 
+ 
+I have always been intolerant. Wrongly intolerant. Wrongly **intolerant with myself**, which is indeed, wrongly tolerant with myself. Bear with me. 
+
+I didn't tolerate myself. I was unsatisfied, it was never enough, I wanted to be above the rest. But at the same time, I was tolerating too many of my mistakes, and I was tolerating too much of my current situation.
+
+Also, I have always been **intolerant with others.** I was being highly intolerant with those that hadn't reach my levels of intolerance towards themselves. Because I didn't want to be a mediocre person, my levels of intolerance pushed myself further and further. So, I grew. But my intolerance couldn't tolerate the levels of tolerance that others have towards themselves. I couldn't tolerate that others were so tolerant of themselves, and that is what made me so intolerant of them.
+ 
+We are a reflection of what we see outside. There is no division between the inner world and the outer world. The intolerance I saw in others was the intolerance of myself. *The intolerance I had towards others' tolerance was my intolerance towards my own tolerance.*^[You may want to re-read the quote above.] 
+ 
+I couldn't stand people that were mediocre because I couldn't stand my own mediocrity. 
+ 
+I got frustrated and impatient when people don't understand what I say and do, because I got frustrated and impatient when I don't understand what people say and do.
+ 
+Once, I started to be more flexible with other people’s beliefs and practices. Once, I started to be more tolerant with what those above me did and said, that I was not fully understanding of; I was becoming more tolerant with what those below me did and said, which I didn't fully understand, although I had been at their place not long ago. 
+ 
+It is my lack of memory, and my lack of perspective what limits my views. 
+
+Now, it is not frustrating, when people argue with me, or doubt about me. I don't have to care about that, I don't have to spend my energy on their doubts, I have to focus that energy on myself. Focus all the intolerance that I was sending to them, to myself, untill the moment that their doubts disappear, not because now they believe, but because now, they can see. They can see how my intolerance to my own being has materialized in all the things that once I said that I was going to get.  
+ 
+I cannot tolerate anymore this version of myself that is intolerant. I cannot tolerate my intolerance to others. And this is the paradox: that through the intolerance, I can become tolerant. 
+ 
+It is all about directions: inwards, outwards, inwards, outwards. 
+ 
+At some point of the spiritual path, tolerance to the self appears again and reminds us that we have to be compassionate and acceptant, that we have to acknowledge who we are at a given moment, and we have to accept what people are at a given moment. We have to become more tolerant with ourselves and more tolerant of others.
+ 
+But at another point of this spiritual path, we move beyond and stop being tolerant with ourselves, to keep on growing and move even further, further beyond. 
+
+About these places where I am heading, I cannot talk about, because I haven't been there. Those places where I am heading are unknown to me. That is therefore the gift of ignorance, the infinite things yet to be discovered.^[This is my humble humbleness, that needs so much strenghtening. Another upcoming paradox... ]
+ 
+Lots of love and tolerance to you all. 
+  
+Carlito Fluito
+
 
